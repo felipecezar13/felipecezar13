@@ -1,7 +1,7 @@
 # 👋 Olá, eu sou Felipe Cezar
 
 🎓 Estudante de Engenharia de Software no UniCEUB  
-📚 Atualmente cursando o 1º semestre  
+📚 Atualmente cursando o 2º semestre  
 🎂 18 anos  
 🇧🇷 Brasília, DF - Brasil  
 🇺🇸 Inglês Intermediário (B2)

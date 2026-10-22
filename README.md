@@ -49,6 +49,8 @@ Tenho interesse em aprender continuamente, desenvolver projetos práticos e expl
 
 📧 E-mail: felipecezar0412@gmail.com
 
+Site Portifólio: https://felipecezar13.github.io/PortfolioHUB/#projetos
+
 ---
 
 ## ✨ Frase que me inspira

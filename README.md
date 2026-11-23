@@ -5,7 +5,6 @@
 🎂 18 anos  
 🇧🇷 Brasília, DF - Brasil  
 🇺🇸 Inglês Intermediário-Avançado (C1)
-
 🇪🇸 Espanhol intermediário (B2)
 
 ---

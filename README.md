@@ -4,7 +4,8 @@
 📚 Atualmente cursando o 2º semestre  
 🎂 18 anos  
 🇧🇷 Brasília, DF - Brasil  
-🇺🇸 Inglês Intermediário (C1)
+🇺🇸 Inglês Intermediário-Avançado (C1)
+🇪🇸 Espanhol intermediário (B2)
 
 ---
 
